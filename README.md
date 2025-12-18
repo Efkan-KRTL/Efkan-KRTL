@@ -1,4 +1,3 @@
-# 💫 About Me:
 HI, I'M EFKAN KURTUL
 
 
